@@ -35,7 +35,7 @@ Here's a glimpse of my skills:
 ## 🌟 Connect with Me
 
 - 🔗 Dive deeper into my digital journey on [LinkedIn]([https://www.linkedin.com/in/your-linkedin](https://www.linkedin.com/in/swasti-sundar-pradhan-980087224/)/), where connections turn into collaborations.
-- 🌐 Explore my ever-expanding portfolio at [yourwebsite.com](https://swastisundar.com), where you'll find a collection of my digital creations.
+- 🌐 Explore my ever-expanding portfolio at [swastisundar.com](https://swastisundar.com), where you'll find a collection of my digital creations.
 
 ## 🤝 Let's Craft Digital Wonders
 
